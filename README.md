@@ -1,0 +1,2 @@
+# ekanur
+CV Lamaran
